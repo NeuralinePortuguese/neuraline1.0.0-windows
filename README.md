@@ -1,1 +1,1 @@
-Click <a href="https://drive.google.com/file/d/1tewQOmhl_8Idb0fEaIkjwFfmFSBaLW2J/view?usp=sharing">here</a> to download Zip for <b>MS WINDOWS</b> directly from Drive.
+<p align="justify">Clique <a href="https://drive.google.com/file/d/1jMa2y1Kg9zs4NbW1e1f3B2zpQUaA2RvY/view?usp=sharing">aqui</a> para acessar o drive do zip e efetuar o download para <b>WINDOWS</b>.</p>
